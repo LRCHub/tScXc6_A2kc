@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "UCHIRA",
+  "base_artist": "Reichi",
+  "createdAt": "2026-01-12T13:17:13.865943Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "UCHIRA",
+      "artist": "Reichi",
+      "has_synced": false,
+      "path": "select/pl_01_UCHIRA_Reichi.txt"
+    }
+  ]
+}
