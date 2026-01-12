@@ -1,0 +1,120 @@
+# Reichi – UCHIRA
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+持ってく全部
+自分のペースで
+緻密に書き上げてく設計図
+私 DRAKE
+goodとbadのチョイスで
+RiRiもしたくなるtwerk
+たまに
+罠
+しかける trap
+悪ノリのつもり
+sorry, hater
+ハハッ 嘘嘘嘘
+思ってない
+根っからなの B-GIRL
+はい?はい?
+モニとミラ?
+今夜渋谷行くじゃ
+今から make up
+my bitchesからの
+連絡でwake up
+とりあえず
+シャワー
+浴びて服選ぶ
+brand new流して
+準備
+1 Shot 2 Shot
+考えてmoving
+そろそろ行くっしょ
+are you ready?
+今日もうちらがまた
+メインディッシュ
+Bad bad girl's
+are you ready?
+get start it
+No.1 楽しめんの誰よ?
+who's baby?
+時代は
+UCHIRA ウチラ うちらの番だ
+look at me now
+ハハッ try me
+んー try me
+my time wicked
+いつでもまず自分に正直
+すぎて朝方ない所持金も
+気にしてない 死ぬまで no limit
+今日最後の日
+として日々生きれる才能持ち
+I'm a rapper you know what
+a mean?
+まぁevery day we lit lit
+いつも通りに
+my Lyric 直径一ミリ以下
+目に見えない言葉を武器に
+猛者ともwin-win
+いらないブリンブリン
+私は私って時点でflexin
+bitchより
+bitchな
+私の粋ないきなりのプレゼン
+レペゼン大阪
+今日から私が王様!?
+(まじで!?)
+Bad bad girl's
+遠慮はいらない まじ
+No.1 楽しんでるの
+分かるでしょ baby
+時代は
+UCHIRA ウチラ うちらの番だ
+look at me now
+ハハッ try me
+North side!!
+South side!!
+East side!!
+West side!!
+隣にいつもの2人
+揃えばまたit's gonna be a party
+リスナーはlisten up
+イカした my shit
+このシーン かちこむ一網打尽
+私はラブリー
+でもやってる仕事は
+ライムディール
+M.I.C 握ってなくても
+笑顔が消えたら始まる Side B
+それに
+SKILL FACE FEEL SOUL
+揃った四拍子
+全部持ってく
+ゆったろ冒頭に
+掴めるだけ掴んでboss it
+上がってけないなら置いてけぼり
+もうこっから カットなし
+fatなshit
+掻き集めれないならお前pussy
+次は UCHIRA ウチラ うちらの番だ
+もろとも全部奪う番
+21次ならBLACK JACK
+狙って狙って pull up come again
+Bad bad girl's
+are you ready?
+get start it
+Jump＆Bounce
+ほら 揺らして
+Body＆Booty
+時代は
+UCHIRA ウチラ うちらの番だ
+look at me now
+ハハッ try me
+しな火の用心
+教えてもらった通りにfloatin'
+fruity, juicyでしょ?
+このルーキー
+誰にもshhh
+don't talking
+```
